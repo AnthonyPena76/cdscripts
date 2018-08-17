@@ -14,3 +14,58 @@ my pregnant mind and other people read about your life and adventures you became
 Xel now looking very concerned. "But... I did die. Oherwise I wouldn't be here." he says. "You're here because this is the beggening and 
 the end. This is what I've written. 
 
+
+
+Anthony Pena
+8/16/18
+Top Caster
+
+Open on a blank computer monitor. The computer boots up. 
+Monitor l.e.d goes from amber to birght white. Motherboard splash screen. Operating system log in screen. An icon with Max's picture shows up. He's wearing white headphones over the ear and has a green screen behind him.
+
+The password field gets filled. The Mouse cursor opens an application called Jolt.tv   He types "Samurai" in to the search bar. 
+
+Samurai's channel comes up. Under currently playing it reads "Two-Weaks". The channel is clicked on and opened. 
+
+	SAMURAI
+Hey! Thanks for the 12 month sub Buggerlord! I truly appreciated. LETS GET SOME KATANA KUTS in the chat for bugger people! 
+
+
+The chat fills with emoji of a Katana cutting the word Kut. Max types a couple himself. The loading screen for Two-Weaks comes up on Samurai's screen. 
+
+	SAMURAI
+Woo, lets go for that Bacon breakfast guys! 
+
+	MAX (O.S.)
+Oh my jeeze, she's so cool! 
+
+Int. Max's Room, Afternoon. 
+Max's room is tidy enough. There are gaming posters all over the walls and shelves with action figures and statuettes. Josh Max's best friend is standing behind him watching the screen. 
+
+	JOSH
+I don't get it. So you watch her... play video games? 
+
+Max Swings his chair around.
+
+	MAX
+No, no no no no, She's literally one of the best at Two-Weaks.  
+
+	JOSH
+I mean she's really good, but I just don't get how you can 
+just watch someone play games for hours. Like, whats stopping you from doing what she does? 
+
+Those words. Max is stunned at those words. His eyes glaze over and he beings to day dream. 
+
+Int. Max's mind. Day Dream. 
+
+Max is playing Two-Weaks activly. A second monitor has appeared on his desk. That monitor shows his streaming program. He gets a notification of a new follower, we see his follower count grow and grow. Sub count grow and grow. His room changes around him to bigger and better gaming gear. He gets a DM on Jolt.tv from SAMURAI. It reads. "Hey maybe we should do a stream together sometime?" He imagines playing Two-Weaks with her, then she's sitting next to him in his room. They get married all live streamed. 
+
+	JOSH (O.S.)
+Max! Max! Nik is here to pick us up. MAX! 
+
+INT. Max's Room Afternoon. 
+
+MAx snaps out of his day dream. EXTREAMLY EXCITED. He jumps out of his chair and pounces on to JOSH. 
+
+	MAX
+JOSH! YOU'RE RIGHT IT WHAT IS STOPPING ME FROM DOING WHAT SHE DOES?! LITERALLY NOTHING. I'M GOING TO START TONIGHT! I'm going to be the TOP STREAMER! 
