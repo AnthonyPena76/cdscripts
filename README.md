@@ -6,15 +6,43 @@ Loud thunderous clicks resonate from the nowhere. Before Xel a chair, a desk, an
 lackclickclack "Who are you?" Xel asked flabbergasted. The man smiles and turns to his desk. A keyboard appears he begins typing. 
 clickclackclickclackclickclack. Clearly this is the source of that strange noise. The man finshes typing and gets up. "I am your creator."
 he says. "I made you." "So, you're my father?" Xel asked. The man smiles and moves back to the keyboard. clickclack "I made him too Xel, 
-I made you're world, your life." Xel noticed that the words we're not coming from the man. They just were coming to him. A stream of words
+I made your world, your life." Xel noticed that the words we're not coming from the man. They just were coming to him. A stream of words
 that he was bathing in. "I don't understand. Are you saying you made me up? Just out of your imagination?" Xel struggles with this for a 
 moment. "I feel things. I feel real! How can I just be made up?!" The man smiles calmly. clickclack "You are real Xel, as long as people
 believe in you and see you as an inspiration, as a hero you will always be real. I can't take that from you now. Once you were born from 
-my pregnant mind and other people read about your life and adventures you became real and as long as they believe in you, will never die."
+my pregnant mind and other people read about your life, your trials, your adventures... you became real and as long as they believe in you, will never die."
 Xel now looking very concerned. "But... I did die. Oherwise I wouldn't be here." he says. "You're here because this is the beggening and 
 the end. This is what I've written. 
 
+click clack click clack click click click clack  "Are you ready to go back now, you need to finish what you started."
 
+"You need to finish what you started you mean? It seems to me that I had very little say in this."
+
+clack clack click clack click clack "Well we could stop now. If you would like, though I don't think that would do anyone much good."
+
+"We could stop?"
+
+click clack "You could stop."
+
+"But I won't..."
+
+clack clack
+
+"I know."
+
+Circle STEP 1 YOU Xel
+Circle STEP 2 NEED Chap.1: Survive, Story: Find Past. 
+Circle STEP 3 GO! Chap.1 : Underground, Story 
+Circle Step 4 Search Chap.1: Looking for safety in the world Story: Looking for information on history with limited knowlege. 
+Circle Step 5 Find Chap.1: Learns of Mole people Equivilant. Story: Finds where to get his history, (nurse or doctor)
+Circle Step 6 Take Chap.1: Comes to mole people but he needs to earn his keep. Story: speaks to doctor and finds out the horrible truth. (Kill doctor?)
+Cirlce Step 7 Return Chap.1: Mole person offers him some homely comfort. Story: The group reassembled. They decide to help others in their situaiton. 
+Circle Step 8 Change Chap.1: He decides he needs to search for his history. Story: He is now the keeper of the information of their history, uses that information to build up others and change the world. 
+
+
+Chapter 1
+
+A thin dark haired boy sits on a stoop in a small spooky house in the woods. He waves his hand over the mud infront of him, it sloshes around. 
 
 Anthony Pena
 8/16/18
